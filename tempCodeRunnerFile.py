@@ -1,0 +1,1 @@
+You are an AI career advisor. Provide advice on what are the technical and soft skills needed for Associate Product Manage
